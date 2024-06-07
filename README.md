@@ -9,4 +9,4 @@ Meu nome é Maria Clara Castilho
 ### Você pode entrar em contato comigo :mailbox
 00001121263653SP@al.educacao.sp.gov.br
 
-![descrição do GIF](link GIF do Tenor)
+![descrição do GIF](https://cdn.dribbble.com/users/2859475/screenshots/6710619/ia_0571_lgbt-social-gifs_lt_heart.gif)
